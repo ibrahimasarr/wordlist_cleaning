@@ -1,2 +1,2 @@
 # wordlist_cleaning
-Tennugol kelmeendi pulaar-Fulfulde
+# Tennugol kelmeendi pulaar-Fulfulde
