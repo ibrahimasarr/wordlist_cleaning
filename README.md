@@ -1,4 +1,5 @@
-wordlist_cleaning
+Doggol kelmeendi Pulaar-Fulfulde
+
 # Tennugol kelmeendi pulaar-Fulfulde
 Musiɗɓe tedduɓe,
 Ndee-ɗoo fiilde ko fiilde kelme ndoɓindaaɗe e binndanɗe keewɗe ngam mahde doggol kelme ɗemngal Pulaar-Fulfulde. Ngoon doggol woni nafoore mum ko heɓde kelme kala kuutorteeɗe e Pulaar-Fulfulde, waɗa-ɗe e deggondiral abajadaa ngam naatndeede e topirɗe peewnirɗe caggitorɗe, caatorɗe mbinndii, basiyorɗe binndi e geɗe goɗɗe.
