@@ -13,5 +13,11 @@ Renndo ngoo fof ena ñaagaa yoo wallu en tennude doggol ngol ngam yaltinde heen 
 Caltuɗe goɗɗe ɗee kadi maa njiy ɗoo ko nanndaani e ko no mbinndirta, kono haa jooni wonaa joɓɓi. Kala ɗo neɗɗo sikkitii, too waɗ ɗoon maantoode yeeso helmere ndee:
 
 * yeru: *yahuki
-      *bowlooɓe
+        *bowlooɓe
+      
+ So on kawrii e helmere ena waɗi alkulal walla alkule ɗe ngalaa e Pulaar, wano &éèàóqë... ekn oɗon mbaawi waɗde hoodere yeeso helmere ndee:
  
+* yeru: *jàpp
+        *addudé
+        
+So on kawrii e helmere ena waɗi toɓɓateeri wano
