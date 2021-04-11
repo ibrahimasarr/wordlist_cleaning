@@ -8,7 +8,7 @@ Doggol ngol noon laaɓaani sabu ena heewi geɗe ɗe ngonaa Pulaar-Fulfulde walla
 ## Hol ko woni heen golle renndo men?
 Renndo ngoo fof ena ñaagaa yoo wallu en tennude doggol ngol ngam yaltinde heen kala ko wonaa Pulaar-Fulfulde! Kala nde ngogi-ɗaa yaajeende seeɗa, aɗa waawi arde ɗoo, tennaa doggol ngol. So a hawrii e helmere farayseere, engeleere walla ɗemngal goɗngal, momtaa nde. So a hawrii e helmere Pulaar nde winndiraaka no haanirta, hoto momtu, saato! Reeno koy: sahaaji aɗa hawra e kelme caltuɗe goɗɗe ɗee tawa mbinndiin oo wonaa gootun, cikkaa ko njomu.
 
-* **Yeru**: ngoomu, mbatu, Pular fof ena selli hay so wonaa ko Fuuta-Tooro heewi huutoraade.
+* **Yeru**: *_ngoomu, mbatu, Pular_*; fof ena selli hay so wonaa ko Fuuta-Tooro heewi huutoraade.
  
 Caltuɗe goɗɗe ɗee kadi maa njiy ɗoo ko nanndaani e ko no mbinndirta, kono haa jooni wonaa joɓɓi. Kala ɗo neɗɗo sikkitii, too waɗ ɗoon maantoode yeeso helmere ndee:
 
