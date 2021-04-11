@@ -12,13 +12,13 @@ Renndo ngoo fof ena ñaagaa yoo wallu en tennude doggol ngol ngam yaltinde heen 
  
 Caltuɗe goɗɗe ɗee kadi maa njiy ɗoo ko nanndaani e ko no mbinndirta, kono haa jooni wonaa joɓɓi. Kala ɗo neɗɗo sikkitii, too waɗ ɗoon maantoode yeeso helmere ndee:
 
-* yeru: *_yahuki_*
+* **yeru**: *_yahuki_* 
         *_bowlooɓe_*
       
  So on kawrii e helmere ena waɗi alkulal walla alkule ɗe ngalaa e Pulaar, wano &éèàóqë... ekn oɗon mbaawi waɗde hoodere yeeso helmere ndee:
  
-* yeru: *jàpp_*
-        *_*addudé_*
+* yeru: *_jàpp_* 
+        *_addudé_*
         
 En paami ndeke tennugol doggol ngol ko yiytude kala ko wonaa heen helmere Pulaar-Fulfulde faamotoonde ngam zum waawa momteede. Kono momtugol ngol ko ga amen gaay waɗetee sabu ɓuri hisde. Kala ko maantoraa * ma min ƴeewto so ena foti saateede, wayleede walla, ɗo wattan ɗoo momteede.
 
