@@ -2,7 +2,7 @@ Doggol kelmeendi Pulaar-Fulfulde
 
 # Tennugol kelmeendi pulaar-Fulfulde
 Musiɗɓe tedduɓe,
-Ndee-ɗoo fiilde ko fiilde kelme ndoɓindaaɗe e binndanɗe keewɗe ngam mahde doggol kelme ɗemngal Pulaar-Fulfulde. Ngoon doggol woni nafoore mum ko heɓde kelme kala kuutorteeɗe e Pulaar-Fulfulde, waɗa-ɗe e deggondiral abajadaa ngam naatndeede e topirɗe peewnirɗe caggitorɗe, caatorɗe mbinndii, basiyorɗe binndi e geɗe goɗɗe.
+Ndee-ɗoo fiilde ko fiilde kelme ndoɓindaaɗe e binndanɗe keewɗe ngam mahde doggol kelme ɗemngal Pulaar-Fulfulde. Ngool doggol woni nafoore mum ko heɓde kelme kala kuutorteeɗe e Pulaar-Fulfulde, waɗa-ɗe e deggondiral abajadaa ngam naatndeede e topirɗe peewnirɗe caggitorɗe, caatorɗe mbinndii, basiyorɗe binndi e geɗe goɗɗe.
 Doggol ngol noon laaɓaani sabu ena heewi geɗe ɗe ngonaa Pulaar-Fulfulde walla tawa ena ko ŋakkuɗe to bannge mbinndiin.
 
 ## Hol ko woni heen golle renndo men?
@@ -20,4 +20,5 @@ Caltuɗe goɗɗe ɗee kadi maa njiy ɗoo ko nanndaani e ko no mbinndirta, kono h
 * yeru: *jàpp
         *addudé
         
-So on kawrii e helmere ena waɗi toɓɓateeri wano
+En paami ndeke tennugol doggol ngol ko yiytude kala ko wonaa heen helmere Pulaar-Fulfulde faamotoonde ngam zum waawa momteede. Kono momtugol ngol ko ga amen gaay waɗetee sabu ɓuri hisde. Kala ko maantoraa * ma min ƴeewto so ena foti saateede, wayleede walla, ɗo wattan ɗoo momteede.
+
